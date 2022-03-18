@@ -1,0 +1,11 @@
+- 👋 Cześć, jestem @SajmonYT66
+- 👀 Interesuje mnie: Służby Miejskie I Transport Publiczny
+- 🌱 aktualnie się uczę: Programować
+- 💞️ Szukam współpracy przy: Discord
+- 📫 Jak do mnie dotrzeć: Możesz Do Mnie Napisać Na Dc SajmonYT@8375
+⸻⸻⸻⸻ENGLISH⸻⸻⸻⸻
+- 👋 Hi, I'm @ SajmonYT66
+- 👀 I'm interested in: Municipal Services and Public Transport
+- 🌱 I am currently learning: Programming
+- 💞️ I am looking for cooperation on: Discord
+- 📫 How to reach me: You can D
